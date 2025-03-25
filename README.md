@@ -22,7 +22,7 @@ and am looking forward to hearing a lot more from you all too.
   it is serendipity. 😀
  😉 "The closest distance between two people is a s-mile" 🌞🌈
   🙂"A smile is a curve that puts things straight"  (Phyllis Diller). 😉🙃
-🪃🐨🦘 We acknowledge and pay our respects to the
+   🐨🦘🪃 We acknowledge and pay our respects to the
 traditional owners and custodians on whose land we walk, work & live.
 <!---
 Auspiciousness1/Auspiciousness1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
