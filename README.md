@@ -5,7 +5,7 @@
   as auspiciousness is prosperity.
   Auspicious is "conductive to success".
   Justice reference is as it must be, righteousness.
-  Where we introduce more AI, with ML and Robotics these AusJust preparations planning, mediation, moderation, management, maintenance experiences and existences are extra incime leverages based around all industries,and governance. The elements and components are created and designed for parallel processed in relation to each area of operations manifestations specifically arranged through and by analytics criteria based on the bureau of statistics configurations, and readily accessible relative functions compositions. 
+  Where we introduce more AI, with ML and Robotics these AusJust preparations planning, mediation, moderation, management, maintenance experiences and existences are extra incime leverages based around all industries,and governance. The elements and components are created and designed for parallel processing in relation to each area of operations manifestations specifically arranged through and by analytics criteria based on the bureau of statistics configurations, and readily accessible relative functions compositions. 
   All operations through due diligence with due process. 
   Recognition of true equity for every entity
   with all their capabilities. All of the ARTS, SCIENCES, MUSIC GENRE'S, TOWN PLANNING, including education, medical and health requirements, transport, and ENTERTAINMENT. The information included will be incorporating the who, why, where, when and how of each area as it is formulated. 
